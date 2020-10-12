@@ -1,0 +1,1 @@
+The recipe is about the world famous Red Velvet Cake. As it tells the cake is covered with white icing and as the name suggests the cake is red in colour. This cake is eaten by many people as pastries, desserts, in birthday parties, etc.
